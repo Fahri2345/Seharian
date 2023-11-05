@@ -1,0 +1,2 @@
+# Seharian
+Memakai ide bagus
